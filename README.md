@@ -1,6 +1,6 @@
 ## Opa! Sou o Patrick Pires
 
-- 🔭 Hoje trabalho em uma rmpresa de açai como auxiliar geral
+- 🔭 Hoje trabalho em uma empresa de açai como auxiliar geral
 - 🌱 Estudando Sistemas de Informção
 - 📫 Contate-me no email: eipatrickpires@gmail.com
 - 😄 Pronouns: Ele/Dele
